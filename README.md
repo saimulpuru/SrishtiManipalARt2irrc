@@ -1,1 +1,0 @@
-# SrishtiManipalARt2irrc
